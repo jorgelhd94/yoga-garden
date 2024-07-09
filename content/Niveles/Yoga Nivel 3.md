@@ -1,0 +1,20 @@
+#yoga #yoganiveles 
+
+1.  [[Ardha Matsyendrasana (Media Torsión Sentada)]]
+2.  [[Baddha Konasana (Postura del Zapatero)]]
+3.  [[Upavistha Konasana (Flexión sentada hacia delante)]]
+4.  [[Vajrasana (Postura del diamante)]]
+5.  [[Gomukhasana (Postura de Cara de Vaca)]]
+6.  [[Paripurna Navasana (Postura de la barca completa)]]
+7.  [[Bhujangasana (Postura de la Cobra Completa)]]
+8.  [[Ardha Pavanamuktasana (Postura de liberación del viento)]]
+9.  [[Dhanurasana (Postura del arco)]]
+10.  [[Balasana (Postura del niño)]]
+11.  [[Viparita Karani (soporte de medio hombro)]]
+12.  [[Sarvangasana (Postura de la vela)]]
+13.  [[Halasana (Postura del arado)]]
+14.  [[Jathara Parivartanasana (Postura de Estiramiento del Gato)]]
+15.  [[Supta Baddha Konasana (Postura del Zapatero Acostado)]]
+16.  [[Savasana (Postura del cadaver)]]
+
+![[Yoga Nivel 3.jpeg]]
